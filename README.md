@@ -6,7 +6,7 @@
 <h5 align="left"> 3. Copy my ponies = block (if you see my cosplays that don't have my GitHub, then that's not me, and they copied me.) </h5>
 <h5 align="left"> 4. Any int! But know I can get shy or a little awkward when first meetings, but I can warm up to you once I get to know you! </h5>
 <h3 align="center"> <img width="1000" height="99" alt="image" src="https://github.com/Silis-DoNotCover/image-maxxing/blob/4bb7b013a799b4a97d77a25b8a4ac8eac1444dba/Kathletsky%20(2).png" />
-<img width="400" height="450" alt="image" align="right" src="https://github.com/Silis-DoNotCover/image-maxxing/blob/4bb7b013a799b4a97d77a25b8a4ac8eac1444dba/Kathletsky%20(5).png" />
+<img width="400" height="450" alt="image" align="right" src="https://i.pinimg.com/736x/47/c7/e5/47c7e58441bbd6056052875826784fa3.jpg" />
 <h3 align="center"><img  width="400" height="320" src="https://github.com/Silis-DoNotCover/image-maxxing/blob/4bb7b013a799b4a97d77a25b8a4ac8eac1444dba/Kathletsky%20(7).png" />
 <h5 align="left"> I'm Taken; any interactions will be platonic. 
 <<h5 align="left"> I can get sad, overwhelmed, or overstimulated at times - Please be patient w/ me if I go Non-Verbal/Semi-Verbal
